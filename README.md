@@ -1,4 +1,4 @@
-🌺Welcome🌺
+🌺Good bye🌺
 --------|
 ![](https://media.tenor.com/iVCiM9W7cvYAAAAd/welcome.gif)
 
